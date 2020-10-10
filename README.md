@@ -8,7 +8,3 @@
 
 ## Contoh
 
-### Doni
-<br> Mahasiswa nganggur
-<br> Dari UNNES
-<br> Cari kaos
